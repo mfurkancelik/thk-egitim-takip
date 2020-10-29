@@ -1,0 +1,1 @@
+# thk-egitim-takip
